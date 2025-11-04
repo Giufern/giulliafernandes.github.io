@@ -27,7 +27,7 @@ Acesse o projeto online clicando aqui:
 
 
 ## 📫 Contato
-📧 [giulliaff@gmail.com](mailto:giulliaff@gmail.com)  
+📧 [giullia.fernandes7@gmail.com](mailto:giullia.fernandes7@gmail.com)  
 📱 [WhatsApp](https://wa.me/5575999020469)  
 💼 [LinkedIn](https://www.linkedin.com/in/giullia-fernandes-08990a259)
 
